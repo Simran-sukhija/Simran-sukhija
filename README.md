@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Simran-sukhija
+- 👀 I’m interested in Data anaysis
